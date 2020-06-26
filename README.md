@@ -1,0 +1,2 @@
+# Contact
+For learning purposes 😉
